@@ -1,1 +1,1 @@
-# Titus-Kurniawan-Sandy-Purwanto_I0320102_Tiffany-Bella-Nagari_Tugas2
+#Titus-Kurniawan-Sandy-Purwanto_I0320102_Tugas2 excercise 2.1- 2.4, Soal 1 & 2
